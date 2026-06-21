@@ -1,4 +1,4 @@
-Medimate - Modern Healthcare
+Medimate - Modern Healthcare Solution
 
 
 
